@@ -96,3 +96,11 @@ This chapter shows:
     The moment when the line that split Virginia also splits his congregation and his own calling. He is still trying to speak as a shepherd of souls, while the world is demanding he choose a side as a loyal subject.
 
 
+Chapter 6 – Virginia secedes
+
+    Timeline note: secession convention, Fort Sumter, Lincoln’s call for troops, then Virginia’s decision.
+
+    Brief clarification of the geographic and class split inside Virginia (east vs west, slave vs less‑slaveholding counties) that foreshadows West Virginia.
+
+    If Kidd’s loyalties are complicated, a note that many clergy and laypeople were genuinely torn, not uniformly pro‑Confederate or pro‑Union.
+
