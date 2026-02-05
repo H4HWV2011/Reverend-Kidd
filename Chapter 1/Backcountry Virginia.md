@@ -56,3 +56,18 @@ For a boy like him, this means:
 
     Somewhere in this mix, he feels both drawn and scared—drawn to the way words move people, scared of the weight that would put on whoever stands up front.
 
+You’re in good shape thematically; what’s missing now are a few targeted endnotes/author’s notes to quietly scaffold readers where the history is dense or the symbolism is doing double-duty.
+
+Below is a concrete pass by chapter, assuming:
+
+    Some chapters already have notes on big-picture context,
+
+    You want to avoid over-explaining the modern parallels on the page.
+
+Chapter 1 – Backcountry Virginia
+
+    Methodist circuits and itinerant preachers in early Virginia: what a “circuit” was, why riders existed at all.​
+
+    Backcountry social structure: smallholders vs large planters, enslaved vs free Black populations, Native presence (even if mostly off-stage).
+
+    Any specific place names or rivers that matter later in the book (so this becomes a quick historical-gazetteer anchor).
