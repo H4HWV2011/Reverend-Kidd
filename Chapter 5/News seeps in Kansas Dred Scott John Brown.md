@@ -77,3 +77,10 @@ Chapter 5 – “News seeps in”
 
     Add a small beat where he realizes two neighbors heard the same report about Kansas or Dred Scott and came away with opposite conclusions—that’s your quiet mirror of modern echo chambers.
 
+Chapter 5 – News seeps in: Kansas, Dred Scott, John Brown
+
+    One note each on: the Kansas–Nebraska Act, “Bleeding Kansas,” the Dred Scott decision, and John Brown’s raid at Harpers Ferry (date, basic stakes).
+
+    A note on why the backcountry got news slowly (roads, literacy, newspaper reach) and how that lag shaped misunderstanding.​
+
+    If you depict local arguments about these events, a note that even contemporaries often had only partial or distorted information.
