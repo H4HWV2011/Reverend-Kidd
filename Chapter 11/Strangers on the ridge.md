@@ -98,3 +98,11 @@ This chapter shows:
 
     He lives long enough to see the mountains move from war zones to resource zones, and he recognizes that although the uniforms changed to suits, the hunger of the outside world stayed the same. He spends his last working years trying to prepare his flock for a quieter, more seductive kind of conquest—the one that comes with wages and contracts instead of drums and guns.
 
+hapter 11 – Strangers on the ridge
+
+
+    A note on common types of “strangers”: refugees, deserters, spies, displaced enslaved people seeking Union lines, etc.
+
+    If one stranger’s story echoes documented experiences (ex‑slave narratives, refugee accounts), you can anchor that with a quiet historical pointer.
+
+    Clarify any military unit or region they name, to help readers place their journey without needing to Google.
