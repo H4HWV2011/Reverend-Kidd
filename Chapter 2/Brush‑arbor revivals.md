@@ -58,3 +58,11 @@ That’s the heart of this chapter:
 
     The brush‑arbor becomes not just a place he visits, but the stage where he discovers that his voice has weight—and that answering that pull is going to cost him the safety of being ordinary.
 
+Chapter 2 – Brush‑arbor revivals
+
+    Definition of a brush‑arbor: quick physical description of poles, brush roofing, and why these were used instead of formal churches.​
+
+    How brush‑arbors fit into the camp‑meeting / revival tradition and the Second Great Awakening.​
+
+    One note clarifying that emotional, lay-led religion was controversial in its own time (critics calling Methodists “enthusiasts”).​
+
