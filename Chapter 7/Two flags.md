@@ -96,3 +96,11 @@ This chapter marks the crisis of conscience:
 
     He has formally refused to let the pulpit become a flagstand. From this point on, it’s only a matter of time before one or both sides decide that a man who won’t bless their banner is safer in a cave—or a grave—than in a hollow full of impressionable souls.
 
+
+
+    Chapter 7 – “Two flags” / pressure to declare
+
+        When men argue over what he “must” say, focus on how each group only hears the part of his sermons that confirms what they already believe.
+
+        That selective listening is the historical form of information silo—no commentary needed.
+
