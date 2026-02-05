@@ -1,1 +1,1 @@
-# REverane Kidd 
+# Reverend Kidd
