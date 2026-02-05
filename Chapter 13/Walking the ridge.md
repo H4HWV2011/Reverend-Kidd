@@ -77,3 +77,11 @@ Last image of the epilogue:
 
     Then walk back down the ridge, carrying both his unresolved questions and your own, into a future where the cave and the code are just two chapters of the same family story.
 
+Chapter 13 – Walking the ridge
+
+    Clarify any postwar or late‑war markers you use (amnesty, occupation troops, surrender news, church reorganization, etc.).
+
+    A note on how churches and circuits were actually re‑knit (or fractured) after the war, especially in border/backcountry contexts.​
+
+    If Kidd reflects on the endurance of memory across regimes, one note could gently point to historians’ observation that people often live through radical change without fully grasping its long‑term meaning in the moment.​
+
