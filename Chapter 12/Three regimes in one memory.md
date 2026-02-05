@@ -118,3 +118,10 @@ That’s the note this chapter ends on:
 
     An old man laid in mountain soil, unknown to history books but alive in memory, his stories incubating in family talk until they surface generations later in the way a granddaughter thinks about power, technology, and the mountains she refuses to leave.
 
+Chapter 12 – Three regimes in one memory
+
+    A note explaining the three regimes: British crown (colonial rule), early American republic, Confederate state—dates and key civic changes (oaths, flags, legal language).​
+
+    One note on how fast institutions can change in frontier life: the same courthouse or meetinghouse serving different sovereigns within a single lifetime.
+
+    If an elder character references specific events (Revolution, War of 1812, earlier Virginia politics), give a line of factual context for each.
