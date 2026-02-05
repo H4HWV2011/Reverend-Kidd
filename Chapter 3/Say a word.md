@@ -62,3 +62,11 @@ This chapter is about that tension:
 
     He’s clearly been “called” in the only way mountain communities recognize—by use, by need, by fruit—while he carries a constant suspicion of his own motives. He is a preacher without papers, a shepherd with calloused hands, learning to accept that, in his world, that might be exactly the point.
 
+Chapter 3 – Say a word
+
+Notes to add:
+
+    Explanation of extemporaneous prayer and testimony culture in frontier Protestantism: how non-ordained people “say a word” in meetings.
+
+    Very short gloss if you use specific hymn titles, phrases, or biblical allusions that were especially charged in that era.
+
