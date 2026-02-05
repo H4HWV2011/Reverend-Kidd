@@ -82,3 +82,11 @@ This chapter is about showing:
 
     He isn’t famous, rich, or formally trained. But over years, his footsteps, words, and presence knit together a scattered people. He becomes “the hollow’s shepherd” not by decree, but by showing up, again and again, wherever the creek bends and a door opens.
 
+Chapter 4 – A circuit stitched by boots and creek crossings
+
+    How large a circuit could be in miles/days, and what a rider’s yearly cycle looked like.​
+
+    Practical dangers: swollen creeks, weather, isolation, and how this shaped the authority (and loneliness) of the circuit rider.
+
+    If you mention particular denominational structures (presiding elder, conference, etc.), a one‑line explanation.
+
