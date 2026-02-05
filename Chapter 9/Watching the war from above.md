@@ -101,3 +101,14 @@ He can’t solve it cleanly:
     On bad days, he fears God will say, “When your brothers were killed, you hid.”
 
 That unresolved tension—the war outside and the war inside—sets up the emotional ground for the next chapter, when external gunfire finally stops and he has to decide whether, and how, to walk back down into the world he left.
+
+
+
+In Chapter 9 – Watching the war from above:
+
+    Emphasize the distance + helplessness: he sees smoke, hears cannon, but can’t intervene.
+
+    Let him feel that strange guilt of watching other people’s suffering as shapes and sounds, not faces he can touch.
+
+    Show him imagining what’s happening in detail because he only sees signals at a distance—like a person piecing together a story from flashes on a screen.
+
