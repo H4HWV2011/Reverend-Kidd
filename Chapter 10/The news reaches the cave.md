@@ -126,3 +126,10 @@ This chapter’s energy is quiet but powerful:
 
     No parades, no vindication—just a man stepping back into a broken community, carrying both the stain and the strength of what he did, and choosing to spend the rest of his years helping those hills remember how to live without gunfire.
 
+Chapter 10 – The news reaches the cave
+
+    How far real battlefronts or raiding parties came into this backcountry, with a line on guerrilla warfare/banditry if relevant.
+
+    If people are hiding from specific forces (Confederate conscription, Union patrols, irregular bands), name and define them.
+
+    A note that caves, hollows, and remote farmsteads were documented hiding places for deserters and dissidents, not just fictional drama.
