@@ -67,3 +67,13 @@ This chapter shows:
 
     War arrives first as rumor and argument, not bullets. The Reverend is trying to hold a fragile community together with scripture and common sense while the wider country splits; he can feel that his hollow will not be able to stay neutral forever.
 
+
+
+Chapter 5 – “News seeps in”
+
+    Keep showing news as fragments: one man with a crumpled newspaper, another with a half‑remembered courthouse speech.
+
+    In Elisha’s head, emphasize how stories change from mouth to mouth: same event, different spin depending on who tells it.
+
+    Add a small beat where he realizes two neighbors heard the same report about Kansas or Dred Scott and came away with opposite conclusions—that’s your quiet mirror of modern echo chambers.
+
