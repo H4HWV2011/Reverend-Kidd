@@ -104,3 +104,10 @@ This chapter marks the crisis of conscience:
 
         That selective listening is the historical form of information silo—no commentary needed.
 
+Chapter 7 – Two flags
+
+    Clarify what “two flags” actually were in that time and place (U.S., Virginia, Confederate national/battle flag, etc.), and which would plausibly appear where.
+
+    A note on how visible symbols (flags, cockades, uniform bits) functioned as social sorting mechanisms—who you could safely talk to or trade with.
+
+    If you use particular slogans or toasts, one line on their historical resonance.
