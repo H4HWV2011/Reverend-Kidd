@@ -124,3 +124,13 @@ This chapter is about:
 
     A man who refused to let any flag own his conscience, now living like a hunted animal so the people he loves can go on living. The cave is both prison and sanctuary—his choice to go to ground keeps the line alive, even as it nearly breaks him.
 
+Chapter 8 – The warning
+
+Helpful notes:
+
+    If the warning involves conscription, bushwhackers, or Home Guard, a short definition of whichever group is operating.
+
+    A note on local vigilante/irregular violence vs formal army authority, so readers understand why the warning carries real risk.
+
+    Any specific law or proclamation alluded to (e.g., conscription acts, loyalty oaths) in one or two neutral sentences.
+
