@@ -112,3 +112,12 @@ In Chapter 9 – Watching the war from above:
 
     Show him imagining what’s happening in detail because he only sees signals at a distance—like a person piecing together a story from flashes on a screen.
 
+    Chapter 9 – Watching the war from above
+
+    A note on the actual battles or campaigns that would be visible/audible from your ridge (even if unnamed in the chapter).
+
+    Clarify how civilian observers experienced war “at a distance”: smoke on the horizon, roads jammed with wagons, refugees—not just battlefield gore.​
+
+    If Kidd is wrestling with whether watching instead of fighting is moral, one note about how many rural Southerners aimed simply to survive, not to be “heroes.”
+
+
