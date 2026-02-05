@@ -1,6 +1,4 @@
 # Reverend Kidd
-Here’s a lean chapter outline you could use for a novel loosely based on **Rev. William Elisha Kidd’s** life.
-
 ***
 
 ## 1. The Boy in the Holler (1808–1820s)
